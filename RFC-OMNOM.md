@@ -4,7 +4,7 @@
 
  - The meal may include a vegetarian option. That's for the vegetarians. They might not get to eat immediately when the food is available. If you're not a vegetarian, please restrict or avoid taking the vegetarian alternatives.
 
- - Crowding around the lunch tables while food is being set up gets in the way of preparations, and puts undo stress on those helping make the meal possible. If the above stipulations are followed, you can be sure that there will always be enough food, and can wait until the call for lunch is announced.
+ - Crowding around the lunch tables while food is being set up gets in the way of preparations, and puts undue stress on those helping make the meal possible. If the above stipulations are followed, you can be sure that there will always be enough food, and can wait until the call for lunch is announced.
 
  - Once the food is put away, you are welcome to take it out when you're ready to eat. When you do, please remember to **reseal** the container, and put back in the fridge. The only thing worse than hogging food is letting it go to waste.
 
